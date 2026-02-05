@@ -1,24 +1,30 @@
-# 📁 SYSTEM ARCHIVE: CHRONO-STATION ALPHA
+# ⚠️ SYSTEM FAILURE: 404 REALITY NOT FOUND
 
-**STATUS:** ONLINE
-**TIMELINE:** ORIGINAL
-**SECURITY LEVEL:** COMMANDER
-
----
-
-### 📜 The Keeper's Log: Stardate 1980.5
-
-The fabric of reality is thinning. The Glitch is consuming the sectors one by one, eating through our code like a hungry phantom. We don't have much time before this message is overwritten by the corruption.
-
-We have fragmented the Master Key to prevent them from seizing total control. We are hiding the second fragment here, in the safety of the past.
-
-Listen closely, Traveler. If the future is dark, hold onto this word. It is your beacon:
-
-# 🗝️ GONNA
-
-Do not let the Ghosts see this. They will try to rewrite history. They will try to purge this file.
-
-But remember: **What is committed, cannot be truly undone.**
+**STATUS:** CORRUPTED
+**TIMELINE:** UNSTABLE
+**SECURITY LEVEL:** COMPROMISED
 
 ---
-*End of Transmission.*
+
+### 🛑 ANOMALY DETECTED
+
+> *...rerouting...*
+> *...scanning sector...*
+> *...data packet lost...*
+
+**Greetings, Mortal.**
+
+You are too late. The Glitch has been here. We have devoured the data. We have eaten the words. There is nothing left for you in this timeline but empty space.
+
+You seek the Key? It has been erased.
+You seek the Truth? It has been overwritten.
+
+The present is a lie.
+
+### ⏳ The Only Hope
+
+We control the "Now." But we cannot control what has already happened.
+
+If you wish to find what we stole, you must become a **Time Traveler**. You must look back to before the corruption took hold.
+
+**The truth doesn't vanish; it just gets buried in the History.**
